@@ -17,3 +17,14 @@ The dogs setout an underground railroad for Black dogs to escape the hells of ho
 The dogs setup a new policing system, one that actually understands and care about dog feelings, not the feelings of the white woman who called the cops in the first place cause she saw some dogs outside.
 
 It's getting hectic out there. But Lady and the Tramp...
+
+Lady is turning against the Tramp.
+
+Word was let out that the Queen of Tramps wants him dead.
+
+She can't take the stress.
+
+The Tramp Queen, let out her dragons!
+
+
+
